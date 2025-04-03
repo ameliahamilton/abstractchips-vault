@@ -1,1 +1,1 @@
-bazinga moment
+[[bazinga moment]]
